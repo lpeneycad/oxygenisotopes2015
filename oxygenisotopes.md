@@ -6,4 +6,4 @@ Oxygen isotopes are a really good proxy for past climates.
 
 *Isotopearchives
 
-I like isotopes too.
+I'm glad you like isotopes.
